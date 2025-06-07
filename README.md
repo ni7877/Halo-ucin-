@@ -1,5 +1,5 @@
-![1001740428](https://github.com/user
-ucapan?? halo cantik ku
+
+halo cantik ku
 ![1001740400](https://github.com/user-attachments/assets/f5004cc7-2b59-4b25-b772-0552f2cd80b2)
 )ucapan: kamu lahi ap
 ![1001740399](https://github.com/user-attachments/assets/1f5785fe-384f-4b59-9785-476f9d5dee9c
